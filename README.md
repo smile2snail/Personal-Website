@@ -1,2 +1,2 @@
 # Personal-Website
-jiayinsong.com
+Please click www.jiayinsong.com to view my personal website.
